@@ -1,1 +1,1 @@
-# Hey My name's Nattieyes (Manoi)🦄🤍
+# Nattieyes (Manoi)🦄🤍
